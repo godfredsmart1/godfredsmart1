@@ -1,4 +1,4 @@
-# Hi, I’m Godfred Owusu 👋
+# Hi, Godfred here 👋
 
 **Senior Project & Product Manager | Agile Leader | Digital Transformation Expert**  
 
